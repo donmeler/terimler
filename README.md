@@ -26,7 +26,7 @@ Hatta,
 
 aileden-donmeyken bu cemberin disina cikanlar, yani, aileden-donme olup da donme olmayanlar. Bu kimselere ne diyecegimi bilmiyorum ama simdilik donmeligini geride birakmis, ya da, donmelikten-cikmis diyecegim. Donmelikten-cikmis kimselerin donmelerden farki -- 
 
-yalnizca ve yalnizca, aileden-donmeliklerini mertce acik etmeleridir -- baskalarinin kendisinin aileden-donme ol**MA**digini dusunecek herhangi bir duruma meydan vermeyecek sekilde. 
+yalnizca ve yalnizca, aileden-donmeliklerini mertce acik etmeleridir -- baskalarinin kendisinin aileden-donme ol**MA**digini dusunecek herhangi bir duruma meydan vermeyecek sekilde. Dini inanclari, bizi hic ilgilendirmez. Dini inanc, icrek birsey. Insanin icinde olan birsey - bizi hic baglamaz. Ahlaksa disrak birsey. Insanin dini inanci, kimsenin yargilayacagi/yorumlayacagi bir mesele degildir. Ama, Insanin Davranislari, baskalarina/bize yansiyan her turlu eylemi, o baskalarini tamamen ilgilendirir. Aileden-donme bir kimse, eger bu tur gecmisini acikca, hic bir baglamda/sekilde saklamadan soyluyorsa donme degildir - aileden geleen dini inancini aynen tutsa da.  
 
 
 
