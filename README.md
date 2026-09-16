@@ -28,5 +28,13 @@ aileden-donmeyken bu cemberin disina cikanlar, yani, aileden-donme olup da donme
 
 yalnizca ve yalnizca, aileden-donmeliklerini mertce acik etmeleridir -- baskalarinin kendisinin aileden-donme ol**MA**digini dusunecek herhangi bir duruma meydan vermeyecek sekilde. Dini inanclari, bizi hic ilgilendirmez. Dini inanc, icrek birsey. Insanin icinde olan birsey - bizi hic baglamaz. Ahlaksa disrak birsey. Insanin dini inanci, kimsenin yargilayacagi/yorumlayacagi bir mesele degildir. Ama, Insanin Davranislari, baskalarina/bize yansiyan her turlu eylemi, o baskalarini tamamen ilgilendirir. Aileden-donme bir kimse, eger bu tur gecmisini acikca, hic bir baglamda/sekilde saklamadan soyluyorsa donme degildir - aileden geleen dini inancini aynen tutsa da.  
 
+// aksine - a\s\il\i.  
+// varyasyon,ar ailesinin donmesinden habersiz -- faullu aileden-donme, kismen aileden-donme, 
+
+Bu tartismalara taban teskil eden, 2 onemli savimiz var: 
+
+A) Aileden-donmelerin donmeliklerinin baslica sebebi, kendi kliklerinin sagladigi avantajlardan vaz gecmek istememeleridir. Donmelerin **cok** guclu bir ic-agi vardir. Bu ag vasitasiyla cok buyuk avantajlari edinirler/paylasirlar. Baskalarinin ruhu bile duymadan. Birbirlerine cok sahip cikarlar ve bu konuda cok agzi sikidirlar.  
+B) 
+
 
 
